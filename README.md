@@ -1,0 +1,1 @@
+# Obsqura_project_QALegend
